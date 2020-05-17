@@ -1,1 +1,0 @@
-# gimnaziya.github.io
